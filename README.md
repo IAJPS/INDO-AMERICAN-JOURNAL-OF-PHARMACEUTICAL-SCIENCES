@@ -1,0 +1,2 @@
+# INDO-AMERICAN-JOURNAL-OF-PHARMACEUTICAL-SCIENCES
+Indo American Journal of Pharmaceutical Sciences (IAJPS) is an international, peer-reviewed, multidisciplinary journal, devoted to pharmaceutical sciences. The aim of IAJPS is to increase the impact of pharmaceutical research both in academia and industry, with strong emphasis on quality and originality. IAJPS publishes Original Research Articles, Short Communications, Review Articles in all areas of pharmaceutical sciences from the discovery of a drug up to clinical evaluation.
